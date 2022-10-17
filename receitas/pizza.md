@@ -49,5 +49,5 @@
 8. Para abrir a massa é importante untar as pontas dos dedos com manteiga e também ir tirando todas as bolhas de ar que a massa formou. 
 9. Passe manteiga na borda da pizza para dourar
 10. Coloque uma camada de muçarela na massa, coloque o molho de tomate sobre o queijo, em seguida coloque o restante do queijo sobre o molho.
-11. Recheie com o peperoni.
+11. Recheie com o pepperoni.
 12. Levar ao forno por 10 minutos.
